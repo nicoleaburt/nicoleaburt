@@ -1,4 +1,4 @@
-## # # Hi, I'm Nicole Aburto 👋
+## Hi, I'm Nicole Aburto 👋
 
 ### Data Analytics Student | Cybersecurity Learner | Operations & Finance Professional
 
